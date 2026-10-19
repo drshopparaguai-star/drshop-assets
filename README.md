@@ -1,0 +1,1 @@
+# drshop-assets
